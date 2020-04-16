@@ -40,3 +40,5 @@ For class learning
 | UD2A | 1107211044 | NM |
 | UD2B | 1107211088 | NM |
 | UD2C | 1107211132 | NM |
+***
+[醜八怪小貝貝](https://www.youtube.com/watch?v=8Et6ehGXq5U)
